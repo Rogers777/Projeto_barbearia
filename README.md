@@ -1,1 +1,1 @@
-Site Barbearia 
+Pagina Barbearia 
